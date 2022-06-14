@@ -1,2 +1,1 @@
-# I-Dont-Know
-Im A Gamer
+NO WAY I OPENED MY CRING ACC💀💀💀💀💀
